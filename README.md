@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Samuelgreat23
-- 👀 I’m interested in crypto
+- 👀 I’m a crypto lover
 - 🌱 I’m currently learning coding
 - 💞️ I’m looking to collaborate on coding
 - 📫 You can reach me facebook
